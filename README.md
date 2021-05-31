@@ -23,4 +23,5 @@ Launching Devices
 # Version 1.4
 ![WhatsApp Image 2021-05-31 at 1 06 48 PM](https://user-images.githubusercontent.com/83945828/120159614-0771d580-c213-11eb-8c1d-805075e3993c.jpeg)
 # Version 1.5
-![sketch](https://user-images.githubusercontent.com/83941546/120161424-e8744300-c214-11eb-93ca-e3d7197b62de.jpeg)
+![Sketch 2](https://user-images.githubusercontent.com/83941546/120204198-2ccc0700-c246-11eb-9a88-c37cd02e69df.jpeg)
+
