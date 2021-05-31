@@ -17,6 +17,6 @@ Launching Devices
 # 1.2
 ![WhatsApp Image 2021-05-31 at 12 17 48 AM](https://user-images.githubusercontent.com/83945477/120116433-c2638a00-c1a5-11eb-9915-f597620da1bf.jpeg)
 
-#1.3
+# 1.3
 ![WhatsApp Image 2021-05-31 at 11 01 03 AM](https://user-images.githubusercontent.com/83945477/120151817-59fac400-c20a-11eb-82bd-dcccb5885e8e.jpeg)
 
