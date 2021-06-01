@@ -25,4 +25,4 @@ Launching Devices
 # Version 1.5
 ![Sketch 2](https://user-images.githubusercontent.com/83941546/120204198-2ccc0700-c246-11eb-9a88-c37cd02e69df.jpeg)
 
-![b3](https://user-images.githubusercontent.com/83941546/120269486-8aebff00-c2c5-11eb-9c93-bd8978e7f15e.jpeg)
+![b8](https://user-images.githubusercontent.com/83941546/120270089-9db30380-c2c6-11eb-8156-4a444ed0cf80.jpeg)
