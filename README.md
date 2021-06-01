@@ -4,7 +4,7 @@ Launching Devices
 ![WhatsApp Image 2021-05-29 at 5 22 25 PM](https://user-images.githubusercontent.com/83945477/120072633-78e64280-c0b2-11eb-88da-7b54fd70ce7d.jpeg)
 
 ## Morphological chart
-![Morphological chart-group-17 (1)](https://user-images.githubusercontent.com/83946076/120105953-b9a88f00-c178-11eb-9bf4-c916fd541212.jpg)
+![Ball handling](https://user-images.githubusercontent.com/83946076/120283257-9e549580-c2d8-11eb-91a0-4e097bda3de5.png)
 
 
 
