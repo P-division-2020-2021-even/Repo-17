@@ -7,7 +7,7 @@
 ## Morphological chart
 ![oie_McKq8xzRSR56](https://user-images.githubusercontent.com/83946076/122554441-9e81be80-d056-11eb-8d2a-03cde5a8d0e9.jpg)
 
-![oie_nmpgKyUlbt10](https://user-images.githubusercontent.com/83946076/122554395-8b6eee80-d056-11eb-9637-2f7e4ef5208a.jpg)
+![oie_hmD2DAywjS1H](https://user-images.githubusercontent.com/83946076/122556416-1650e880-d059-11eb-8741-f3a8183a6ddd.jpg)
 
 
 ## CONCEPT
