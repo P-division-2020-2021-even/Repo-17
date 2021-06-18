@@ -5,10 +5,9 @@
 ![Ball handling](https://user-images.githubusercontent.com/83946076/120283257-9e549580-c2d8-11eb-91a0-4e097bda3de5.png)
 
 ## Morphological chart
-![WhatsApp Image 2021-05-29 at 5 22 25 PM](https://user-images.githubusercontent.com/83945477/120072633-78e64280-c0b2-11eb-88da-7b54fd70ce7d.jpeg)
+![oie_McKq8xzRSR56](https://user-images.githubusercontent.com/83946076/122554441-9e81be80-d056-11eb-8d2a-03cde5a8d0e9.jpg)
 
-![Morphological chart-group-17 (1)](https://user-images.githubusercontent.com/83946076/120105953-b9a88f00-c178-11eb-9bf4-c916fd541212.jpg)
-
+![oie_nmpgKyUlbt10](https://user-images.githubusercontent.com/83946076/122554395-8b6eee80-d056-11eb-9637-2f7e4ef5208a.jpg)
 
 
 ## CONCEPT
